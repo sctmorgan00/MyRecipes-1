@@ -1,5 +1,7 @@
 ## Eggnog Custard Tart
 
+![](https://i.imgur.com/fkLPRIg.jpg)
+
 #### Makes 1 (9-inch) tart
 Ingredients
 
