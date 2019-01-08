@@ -49,3 +49,7 @@ Instructions
 
    1.  In a medium saucepan, heat half-and-half, milk, rum, and vanilla over medium heat, stirring frequently, just until bubbles form around edges of pan. (Do not boil.) Remove from heat.
    2.  In a medium bowl, whisk together egg yolks and sugar. Slowly pour in hot milk mixture, whisking constantly. Strain mixture through a fine-mesh sieve. Use immediately.
+   
+  ### The Whipped Cream
+   The next day before serving, create the whipped cream by whisking the heavy cream on high speed until indentations begin to form. Add the vanilla extract and give it a whisk to combine. Add the powdered sugar, and continue to whisk on high speed until you get a thick, frosting-like consistency.
+Fill a pastry bag fitted with a star tip with the whipped cream. Pipe the whipped cream onto the top of each tart, then dust with cinnamon.***
