@@ -12,6 +12,12 @@ Ingredients
     Grated fresh nutmeg and grated fresh cinnamon, for dusting
     Garnish: white chocolate curls (see Note)
 
+The Whipped Cream
+    1 cup cold heavy whipping cream
+    1/2 cup powdered sugar
+    1/2 tsp vanilla extract
+    ground cinnamon for dusting optional
+
 Instructions
 
    1.  In the bowl of a stand mixer fitted with the paddle attachment, beat Browned Butter at low speed until smooth, about 1 minute. Add confectioners’ sugar, vanilla, and salt, beating until combined, stopping to scrape sides of bowl. Gradually add flour, beating until combined and dough comes together, 3 to 4 minutes.
@@ -49,3 +55,8 @@ Instructions
 
    1.  In a medium saucepan, heat half-and-half, milk, rum, and vanilla over medium heat, stirring frequently, just until bubbles form around edges of pan. (Do not boil.) Remove from heat.
    2.  In a medium bowl, whisk together egg yolks and sugar. Slowly pour in hot milk mixture, whisking constantly. Strain mixture through a fine-mesh sieve. Use immediately.
+
+### The Whipped Cream Topping
+
+The next day before serving, create the whipped cream by whisking the heavy cream on high speed until indentations begin to form. Add the vanilla extract and give it a whisk to combine. Add the powdered sugar, and continue to whisk on high speed until you get a thick, frosting-like consistency.
+Fill a pastry bag fitted with a star tip with the whipped cream. Pipe the whipped cream onto the top of each tart, then dust with cinnamon.***
